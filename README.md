@@ -12,5 +12,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about **Matemática**
 - 📫 How to reach me: **Telefone**
 - 😄 Pronouns: **Professor Altieres**
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: **Sou de Riversul**
+  
   ![](https://i.pinimg.com/originals/40/79/8b/40798b052db029bb5cd397ccadf792fd.gif)
